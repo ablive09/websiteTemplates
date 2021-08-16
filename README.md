@@ -16,3 +16,6 @@ http://preview.themeforest.net/item/university-ii-multipurpose-education-templat
 
 Demo 6
 https://preview.themeforest.net/item/edubin-education-html-template/full_screen_preview/23143478
+
+Demo 7
+https://preview.themeforest.net/item/arizon-college-university-elementor-template-kit/full_screen_preview/31532615
