@@ -31,3 +31,13 @@ https://edemy-react.envytheme.com/single-courses-2
 
 Demo 11 (Main)
 https://keenitsolutions.com/products/html/educavo/index2.html
+
+Demo 12
+https://raistheme.com/html/edustdy/edustdy/index.html
+
+Demo 13
+https://wenthemes.com/theme-demos/?demo=kids-education-soul
+
+Demo 14
+
+
